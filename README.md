@@ -7,12 +7,7 @@ Washing), or any other application of ours that links to this Privacy Notice
 • Use NDF Pressure Washing. We provide pressure washing of driveways, walkways, patios and decks in the johnton lowa area
 • Engage with us in other related ways, including any sales, marketing, or events
 Questions or concerns? Reading this Privacy Notice will help you: understand your privacy rights and choices. We are responsible for making decisions about how your personal information is processed. If you do not agree with our policies and practices, please do not use our Services. If you still have any questions or concerns, please contact us at NDFPressureWashing@Gmail.com.
-Select 'Create New Then
-Edit
-APPLY THEME
-To create upgrade.
-$15/mon
-1
+
 SUMMARY OF KEY POINTS
 This summary provides key points from our Privacy Notice, but you can find out more details about any of these topics by clicking the link following each key point or by using our table of contents below to find the section you are looking for.
 What personal information do we process? When you visit, use, or navigate our Services, we may process personal information depending on how you interact with us and the Services, the choices you make, and the products and features you use. Leam more about personal information you disclose to us
@@ -77,7 +72,7 @@ You hav
 Edit
 NDFpu
 Pre
-# NDFp
+# NDFpr
 7. WHAT ARE YOUR PRIVACY RIGHTS?
 In Short: You may review, change, or terminate your account at any time, depending on your country, province, or state of residence.
 Withdrawing.your consent: If we are relying on your consent to process your personal information, which may be express and/or implied consent depending on the applicable law, you have the right to withdraw your consent at any time. You can withdraw your consent at any time by contacting us by using the contact details provided in the section "HOW CAN YOU CONTACT US ABOUT THIS NOTICE?" below.
